@@ -1,4 +1,4 @@
-# 
+# elite VMware Workstation para PC plugins é o melhor VMware Workstation para PC plugins com otimizacao de desempenho e gerenciamento de snapshots. Seguro, confiável e otimizado
 
 
 
